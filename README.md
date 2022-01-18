@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gianguyen681
+- 👀 I’m interested in coding and learning for gaming build in the future.
+- 🌱 I’m currently learning IT developing and programming.
+- 💞️ I’m looking to collaborate on everyone
+- 📫 You can reach me at S01274552@acad.tr-c.edu
